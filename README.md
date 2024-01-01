@@ -1,2 +1,2 @@
-https://yabseraben.github.io/myportfolio/
+https://yabseraben.github.io/ShiseidoPortfolio/
  
